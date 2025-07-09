@@ -10,4 +10,4 @@
 
 汇集欧美日韩高清福利资源，平台支持分类检索与极速播放。每日实时更新热门影片内容，画质清晰，加载流畅，无需注册即可畅享观看体验。适合喜欢深夜私密浏览的用户收藏访问。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/but20250709/but4 ）</span>
